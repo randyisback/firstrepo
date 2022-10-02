@@ -1,7 +1,5 @@
 # DENEME
 
-## ALT BİLGİ
-
-AŞSLDKSADKASJFKLJQOEPUWQOIEUQWOPUI
+## ALT BİLGİ 
 
 https://instagram.com/az4dd
